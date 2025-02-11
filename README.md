@@ -1,0 +1,1 @@
+# info-akurat-pecah-scatter
